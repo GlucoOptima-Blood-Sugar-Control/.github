@@ -52,7 +52,9 @@ Customer responses even more sustain the efficacy of GlucoOptima Blood Sugar Con
 GlucoOptima Blood Sugar Control offers versatile rates options to fit your demands:
 
 1 Bottle: $59.
+
 3 Bottles: $119.91.
+
 5 Bottles: $179.82.
 
 In addition, GlucoOptima Blood Sugar Control comes with a 180-day refund policy. If you're not pleased with the outcomes, you can return the product within 180 days for a complete reimbursement. This guarantees you can try GlucoOptima risk-free and see the benefits for yourself.
